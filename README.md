@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ADEVOTEDMELODY
+- 👀 I’m interested in  Programming developer
+- 🌱 I’m currently learning AI&DS course
+- 💞️ I’m looking to collaborate on Together
+- 📫 How to reach me keerthanapamujula@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: Whatever i did anything perfect instead i feel stupid
